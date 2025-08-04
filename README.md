@@ -42,7 +42,7 @@ Mr. Garg’s presence reminded us that **growth starts when we step out of our c
 ## 💸 Singla Sir 
 I completely forgot his name therefore I used his  **surname "Singla"**, He  has his working profession in **financae sector**, He tell us about that how we can solve our finicial problem And apply for loan with 0% interest and that will return five years. He told us about many things to set our finacial status well to done our graduation.
 
-##👨‍🎓College Alumini
+## 👨‍🎓College Alumini
 
 There are many students who passed their graduation from gndec ludhiana. The achieved many in their academic life . They are the topper of their batch in gndec from freshers to final year . Arshdeep singh and sangam arora are the shinning stars of GNDEC LUDHIANA.
 
